@@ -1,1 +1,0 @@
-# Infocura Github Pages
